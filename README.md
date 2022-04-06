@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ben-keogh
+- 👀 I’m interested in surfing, skating, woodworking, making. 
+- 🌱 I’m currently learning to code while studying mechanical engineering.
+- 💞️ I’m looking to collaborate on really anything
+- 📫 How to reach me ben.keogh@outlook.com
